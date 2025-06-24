@@ -1,7 +1,8 @@
 <h2>NT动漫官方网站 - 免费新番动漫在线观|打不开|电脑版下载</h2>
 <p>NT动漫是一个专为动漫爱好者打造的综合性平台，拥有海量的动漫资源，涵盖日漫、国漫、美漫等多种类型。它成立于2007年，最初以分享日漫为主，如今已发展成集动画、漫画、游戏等多元文化于一体。网站界面简洁，操作便捷，提供高清流畅的播放体验，且无广告干扰。此外，NT动漫还设有互动社区，用户可以在这里交流心得、分享感受。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5702.html" target="_blank"><strong>NT动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://ntdongman.2rdh.com/" target="_blank"><strong>NT动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan"  target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"  target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>资源丰富</strong>：NT动漫收录了海量的动漫作品，包括热门新番、经典老番、冷门佳作等，满足不同用户的多样化需求。</p>
